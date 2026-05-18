@@ -1,4 +1,4 @@
-# 
+# automatic Affinity Photo pour PC scripts est le meilleur Affinity Photo pour PC scripts avec éclairage et sculpting. Sécurisé, fiable et optimisé pour des performances maximales.
 
 
 
